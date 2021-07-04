@@ -2,7 +2,7 @@
 
 Game Matematika Sederhana
 
-~~ Link Website : http://game.learningwithdhan.com/admingame/ ~~
+~~ Link Website : https://alvinkrwnproject.000webhostapp.com/ ~~
 
 Cara Main Game Matematika
 
